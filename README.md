@@ -1,16 +1,22 @@
-## Hi there 👋
+# ʜɪɪ !!
 
-<!--
-**itskaliii/itskaliii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴋᴀʟɪᴋᴀ/ꜱᴀᴛʏᴀ, ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴀᴋɪʟᴀꜱ (ᴏʀ ᴋᴀʟɪ, ɪꜰ ᴡᴇ’ʀᴇ ᴄʟᴏꜱᴇ).*
 
-Here are some ideas to get you started:
+*ᴀ ʟɪᴛᴛʟᴇ ʙɪᴛ ᴀʙᴏᴜᴛ ᴍᴇ ..*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⟡	ɪ ᴡᴀꜱ ʙᴏʀɴ ᴊᴀɴᴜᴀʀʏ 12, 2012. ɪ ᴀᴍ ᴄᴜʀʀᴇɴᴛʟʏ 14 ʏᴇᴀʀꜱ ᴏʟᴅ (ᴀɴᴅ ᴀᴍ ᴀʟꜱᴏ ᴀ ᴄᴀᴘʀɪᴄᴏʀɴ).
+
+⟡	ᴍʏ 16 ᴘᴇʀꜱᴏɴᴀʟɪᴛɪᴇꜱ ᴛʏᴘᴇ/ᴍʙᴛɪ ɪꜱ ɪɴꜰᴘ.
+
+⟡	ɪ’ᴍ ᴄᴏɴꜱᴛᴀɴᴛʟʏ ᴊᴏᴋɪɴɢ, ꜱᴏ ᴅᴏɴ’ᴛ ᴛᴀᴋᴇ ᴀɴʏᴛʜɪɴɢ ɪ ꜱᴀʏ ᴛᴏᴏ ꜱᴇʀɪᴏᴜꜱʟʏ. ʜᴏᴡᴇᴠᴇʀ, ᴅᴏɴ’ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ʟᴇᴛ ᴍᴇ ᴋɴᴏᴡ ᴡʜᴇɴ ɪ’ᴠᴇ ɢᴏɴᴇ ᴛᴏᴏ ꜰᴀʀ (ɪ ᴡᴏɴ’ᴛ ɢᴇᴛ ᴍᴀᴅ).
+
+⟡	ɪ ᴅᴏɴ’ᴛ ᴅᴏ ʟᴀʙᴇʟꜱ, ꜱᴏ ᴘʟᴇᴀꜱᴇ ʀᴇꜰʀᴀɪɴ ꜰʀᴏᴍ ᴀꜱꜱɪɢɴɪɴɢ ᴀɴʏ ᴛᴏ ᴍᴇ.
+
+⟡	ɪ ʟᴏᴠᴇ ᴛᴏ ᴇxᴘᴇʀɪᴍᴇɴᴛ ᴡɪᴛʜ ᴄᴏʟᴏʀꜱ, ᴇꜱᴘᴇᴄɪᴀʟʟʏ ᴡɪᴛʜ ᴍʏ ᴘᴏɴɪᴇꜱ !! .. ᴛʜɪꜱ ɪꜱ ᴀʟꜱᴏ ᴡʜʏ ɪ ꜱᴛʀᴜɢɢʟᴇ ᴡɪᴛʜ ᴄʜᴏᴏꜱɪɴɢ ᴀ ꜰᴀᴠᴏʀɪᴛᴇ ᴄᴏʟᴏʀ.
+
+*ᴀʟʀɪɢʜᴛ, ᴛʜᴀᴛ’ꜱ ᴀʙᴏᴜᴛ ɪᴛ. ꜱᴇᴇ ʏᴀ’ !!*
+
+` (ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ ..) `
+
+<img width="330" height="300" alt="IMG_1319" src="https://github.com/user-attachments/assets/de38d471-3628-41fc-bf95-138e572b6091" />
+<img width="400" height="300" alt="IMG_1292" src="https://github.com/user-attachments/assets/9d3e6b2e-2ac0-4dc1-83e1-393ed227d2ab" />
