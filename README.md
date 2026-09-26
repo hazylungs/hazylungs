@@ -18,5 +18,5 @@
 
 ` (ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ ..) `
 
-<img width="330" height="300" alt="IMG_1319" src="https://github.com/user-attachments/assets/de38d471-3628-41fc-bf95-138e572b6091" />
+<img width="250" height="300" alt="IMG_1319" src="https://github.com/user-attachments/assets/de38d471-3628-41fc-bf95-138e572b6091" />
 <img width="400" height="300" alt="IMG_1292" src="https://github.com/user-attachments/assets/9d3e6b2e-2ac0-4dc1-83e1-393ed227d2ab" />
