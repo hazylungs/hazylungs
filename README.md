@@ -4,7 +4,7 @@
 
 *ᴀ ʟɪᴛᴛʟᴇ ʙɪᴛ ᴀʙᴏᴜᴛ ᴍᴇ ..*
 
-⟡	ɪ ᴡᴀꜱ ʙᴏʀɴ ᴊᴀɴᴜᴀʀʏ 12, 2012. ɪ ᴀᴍ ᴄᴜʀʀᴇɴᴛʟʏ 14 ʏᴇᴀʀꜱ ᴏʟᴅ (ᴀɴᴅ ᴀᴍ ᴀʟꜱᴏ ᴀ ᴄᴀᴘʀɪᴄᴏʀɴ).
+⟡	ɪ ᴡᴀꜱ ʙᴏʀɴ ᴊᴀɴᴜᴀʀʏ 12, 2012. ɪ ᴀᴍ ᴄᴜʀʀᴇɴᴛʟʏ 14 ʏᴇᴀʀꜱ ᴏʟᴅ (ꜱᴏ ʏᴇꜱ, ɪ'ᴍ ᴀ ᴄᴀᴘʀɪᴄᴏʀɴ).
 
 ⟡	ᴍʏ 16 ᴘᴇʀꜱᴏɴᴀʟɪᴛɪᴇꜱ ᴛʏᴘᴇ/ᴍʙᴛɪ ɪꜱ ɪɴꜰᴘ.
 
@@ -20,3 +20,4 @@
 
 <img width="356" height="200" alt="distracted" src="https://github.com/user-attachments/assets/da6acea8-3089-4b94-9ac5-e8837c041a41" />
 <img width="356" height="200" alt="hearts xx" src="https://github.com/user-attachments/assets/f7085e7d-a6b6-4332-8678-994a2aea35dc" />
+` ᴘɪᴄᴛᴜʀᴇꜱ ᴛᴀᴋᴇɴ 10/15/26 `
