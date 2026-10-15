@@ -20,4 +20,5 @@
 
 <img width="356" height="200" alt="distracted" src="https://github.com/user-attachments/assets/da6acea8-3089-4b94-9ac5-e8837c041a41" />
 <img width="356" height="200" alt="hearts xx" src="https://github.com/user-attachments/assets/f7085e7d-a6b6-4332-8678-994a2aea35dc" />
-` ᴘɪᴄᴛᴜʀᴇꜱ ᴛᴀᴋᴇɴ 10/15/26 `
+
+**ᴘɪᴄᴛᴜʀᴇꜱ ᴛᴀᴋᴇɴ 10/15/26**
