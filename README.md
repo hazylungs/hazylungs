@@ -18,7 +18,7 @@
 
 `( ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ .. )`
 
-<img width="356" height="200" alt="distracted" src="https://github.com/user-attachments/assets/da6acea8-3089-4b94-9ac5-e8837c041a41" />
-<img width="356" height="200" alt="hearts xx" src="https://github.com/user-attachments/assets/f7085e7d-a6b6-4332-8678-994a2aea35dc" />
+<img width="169" height="300" alt="IMG_20261028_110417" src="https://github.com/user-attachments/assets/59b4680e-ffda-4b00-86e8-c581cb28744c" />
+<img width="533" height="300" alt="IMG_20261028_111053" src="https://github.com/user-attachments/assets/cb7f149a-1592-4176-b47d-85a70879642e" />
 
-**ᴘɪᴄᴛᴜʀᴇꜱ ᴛᴀᴋᴇɴ 10/15/26**
+**ᴘɪᴄᴛᴜʀᴇꜱ ᴛᴀᴋᴇɴ 10/28/26**
