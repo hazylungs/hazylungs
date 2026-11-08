@@ -14,6 +14,8 @@
 
 `( ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ .. )`
 
-<img width="300" height="500" alt="IMG_20261028_110417" src="https://github.com/user-attachments/assets/59b4680e-ffda-4b00-86e8-c581cb28744c" />
+<img width="368" height="207" alt="awe me" src="https://github.com/user-attachments/assets/a78f4f1f-3b90-4b72-932e-6fc0ad9693e6" />
+<img width="368" height="207" alt="awe awe" src="https://github.com/user-attachments/assets/7d082c72-9ef0-4ecb-9b46-9d47f1877da2" />
 
-**ᴘɪᴄᴛᴜʀᴇ ᴛᴀᴋᴇɴ 10/28/26**
+
+**ᴘɪᴄᴛᴜʀᴇ ᴛᴀᴋᴇɴ 10/15/26**
