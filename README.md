@@ -14,6 +14,6 @@
 
 `( ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ .. )`
 
-<img width="169" height="300" alt="IMG_20261028_110417" src="https://github.com/user-attachments/assets/59b4680e-ffda-4b00-86e8-c581cb28744c" />
+<img width="219" height="350" alt="IMG_20261028_110417" src="https://github.com/user-attachments/assets/59b4680e-ffda-4b00-86e8-c581cb28744c" />
 
-**ᴘɪᴄᴛᴜʀᴇꜱ ᴛᴀᴋᴇɴ 10/28/26**
+**ᴘɪᴄᴛᴜʀᴇ ᴛᴀᴋᴇɴ 10/28/26**
