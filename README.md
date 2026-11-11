@@ -12,7 +12,7 @@
 
 *ᴀʟʀɪɢʜᴛ, ᴛʜᴀᴛ’ꜱ ᴀʙᴏᴜᴛ ɪᴛ. ꜱᴇᴇ ʏᴀ’ !!*
 
-`( ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ .. )`
+`﹝ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ ..﹞`
 
 <img width="368" height="207" alt="awe me" src="https://github.com/user-attachments/assets/a78f4f1f-3b90-4b72-932e-6fc0ad9693e6" />
 <img width="368" height="207" alt="awe awe" src="https://github.com/user-attachments/assets/7d082c72-9ef0-4ecb-9b46-9d47f1877da2" />
