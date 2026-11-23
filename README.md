@@ -1,21 +1,25 @@
-# ʜɪɪ !!
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1a001b96-876c-4526-abac-de8e49849a2c" />
 
-*ᴍʏ ɴᴀᴍᴇ ɪꜱ ꜱᴀᴛʏᴀ, ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴋᴀʟɪ.*
+# "tearing myself apart for the attention that will never be enough."
 
-*ᴀ ʟɪᴛᴛʟᴇ ʙɪᴛ ᴀʙᴏᴜᴛ ᴍᴇ ..*
+*hi hi hi, welcome to my profile !! my name is satya, but you can call me kali.*
 
-⟡	ɪ ᴡᴀꜱ ʙᴏʀɴ ᴊᴀɴᴜᴀʀʏ 12, 2012. ɪ ᴀᴍ ᴄᴜʀʀᴇɴᴛʟʏ 14 ʏᴇᴀʀꜱ ᴏʟᴅ.
+**a little bit about me ..**
 
-⟡	ɪ’ᴍ ᴄᴏɴꜱᴛᴀɴᴛʟʏ ᴊᴏᴋɪɴɢ, ꜱᴏ ᴅᴏɴ’ᴛ ᴛᴀᴋᴇ ᴀɴʏᴛʜɪɴɢ ɪ ꜱᴀʏ ᴛᴏᴏ ꜱᴇʀɪᴏᴜꜱʟʏ. ʜᴏᴡᴇᴠᴇʀ, ᴅᴏɴ’ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ʟᴇᴛ ᴍᴇ ᴋɴᴏᴡ ᴡʜᴇɴ ɪ’ᴠᴇ ɢᴏɴᴇ ᴛᴏᴏ ꜰᴀʀ (ɪ ᴡᴏɴ’ᴛ ɢᴇᴛ ᴍᴀᴅ).
+⟢ i'm 14 years old (born jan 12).
 
-⟡	ᴍʏ ɢɪᴛʜᴜʙ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ.
+⟢ i suffer from frequent mood swings, so interact with caution !!
 
-*ᴀʟʀɪɢʜᴛ, ᴛʜᴀᴛ’ꜱ ᴀʙᴏᴜᴛ ɪᴛ. ꜱᴇᴇ ʏᴀ’ !!*
+⟢	the top three fandoms i'm in are gachiakuta, class of '09, and alien stage.
 
-`﹝ᴘ.ꜱ. ᴘʟᴇᴀꜱᴇ ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ ..﹞`
+**dni if ..**
 
-<img width="368" height="207" alt="awe me" src="https://github.com/user-attachments/assets/a78f4f1f-3b90-4b72-932e-6fc0ad9693e6" />
-<img width="368" height="207" alt="awe awe" src="https://github.com/user-attachments/assets/7d082c72-9ef0-4ecb-9b46-9d47f1877da2" />
+⟢	you make jokes regarding rape; i don't fuck with that.
 
+⟢	you're an age player.
 
-**ᴘɪᴄᴛᴜʀᴇ ᴛᴀᴋᴇɴ 10/15/26**
+⟢	you're misogynistic, homophobic, sexist, maga, racist, etc...
+
+*alright, that's about it. see ya' !!*
+
+` 【 p.s. pls sign my atabook .. 】 `
