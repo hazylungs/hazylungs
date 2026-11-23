@@ -18,7 +18,7 @@
 
 ⟢	you're an age player.
 
-⟢	you're misogynistic, homophobic, sexist, maga, racist, etc...
+⟢	you're misogynistic, homophobic, sexist, maga, racist, etc ..
 
 *alright, that's about it. see ya' !!*
 
