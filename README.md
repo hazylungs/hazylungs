@@ -1,6 +1,6 @@
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1a001b96-876c-4526-abac-de8e49849a2c" />
 
-# "tearing myself apart for the attention that will never be enough."
+# "ruining my lungs all because i couldn't handle a little adventure."
 
 *hi hi hi, welcome to my profile !! my name is satya, but you can call me kali.*
 
